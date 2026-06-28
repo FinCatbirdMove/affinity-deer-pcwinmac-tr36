@@ -1,4 +1,4 @@
-# 
+# Avançado Affinity Designer modelos para Mac OS | Exclusivo Affinity Designer modelos para PC Windows. Com modelos de design e retoque — otimizado para máximo desempenho em cada plataforma.
 
 
 
